@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @latilada
+- 👀 I’m interested in aprender
+- 🌱 I’m currently learning a  manejar LINUX
+- 💞️ I’m looking to collaborate on cualquier proyecto que me ayude a expander mis conocimientos, partiendo desde el hecho de que soy completamente nuevo.
